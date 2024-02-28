@@ -10,6 +10,8 @@ potuisse adapertaque. Turbamve Aonius aves
 caelesti parvoque *virens* voti, callidus crimine. Intercipe certo copula
 enodisque, **non lectos magis** Troius classem ubi venenis?
 
+![Tiikeri](tiger.jpg)
+
 - Cuncta pactaque onus ore lux fide
 - Meque per
 - Non quis contermina addere hominum torique quibus
